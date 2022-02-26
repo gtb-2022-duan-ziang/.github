@@ -1,5 +1,5 @@
 # Welcome to TT030's Organization  
-***Good morning, Good afternoon and ood evening!***  
+***Good morning, Good afternoon and Good evening!***  
   
 Here is :star: **TT030**:star:, and this is my organization.  
   
